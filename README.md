@@ -2,6 +2,7 @@
 
 ## Background
 ![](https://i.imgur.com/ajJV30T.jpg)
+![](https://i.imgur.com/sqEIyn6.jpg)
 
 ![](https://i.imgur.com/mRmTiLz.jpg)
 ![](https://i.imgur.com/Vgu1GQd.jpg)
