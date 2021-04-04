@@ -9,7 +9,6 @@
 ![](https://i.imgur.com/YgpWm5Z.jpg)
 
 ## Numbers
-![](https://i.imgur.com/YIYJa9h.jpg)
 ![](https://i.imgur.com/HUmMbPH.jpg)
 ![](https://i.imgur.com/s0oqaUW.jpg)
 ![](https://i.imgur.com/GfdAoKO.jpg)
@@ -33,8 +32,6 @@
 ![](https://i.imgur.com/I9p9FcY.jpg)
 ![](https://i.imgur.com/VrWR7iq.jpg)
 ![](https://i.imgur.com/VJx1bnQ.jpg)
-![](https://i.imgur.com/ZDkNNCC.jpg)
-![](https://i.imgur.com/eZQRDzR.jpg)
 ![](https://i.imgur.com/GIMdjAV.jpg)
 ![](https://i.imgur.com/u6Yrzh7.jpg)
 ![](https://i.imgur.com/XBD7qbw.jpg)
