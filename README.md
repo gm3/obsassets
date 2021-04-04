@@ -2,7 +2,7 @@
 
 ## Background
 ![](https://i.imgur.com/ajJV30T.jpg)
-![](https://i.imgur.com/q0Dkl4P.jpg)
+
 ![](https://i.imgur.com/mRmTiLz.jpg)
 ![](https://i.imgur.com/Vgu1GQd.jpg)
 ![](https://i.imgur.com/YgpWm5Z.jpg)
@@ -35,8 +35,5 @@
 ![](https://i.imgur.com/ZDkNNCC.jpg)
 ![](https://i.imgur.com/eZQRDzR.jpg)
 ![](https://i.imgur.com/GIMdjAV.jpg)
-![](https://i.imgur.com/lQPjtU2.png)
-![](https://i.imgur.com/9x90dyf.png)
-![](https://i.imgur.com/JgNoHS8.png)
 ![](https://i.imgur.com/u6Yrzh7.jpg)
 ![](https://i.imgur.com/XBD7qbw.jpg)
